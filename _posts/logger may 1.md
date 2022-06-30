@@ -1,0 +1,4 @@
+## logger may 1
+Smvdu University key. Enter smvdu university key.enter key.cmd key.print_screen key.right key.right key.right
+key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right key.right
+
